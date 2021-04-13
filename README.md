@@ -1,2 +1,2 @@
 # sunnaticc-
-Hi there
+Hi, I'm Sanni Habeebullahi Gbolahan 
